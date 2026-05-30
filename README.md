@@ -1,0 +1,1 @@
+Check out the short video on the home and the community information. Affordable Home for Sale in Sarasota priced at $334,900. Short Drive to Downtown Sarasota, the Beaches, Restaurants and Shopping. Questions? Just ask Kristin at cell-text, 941.725-2486 or email kristin.triolo@gmail.com.
